@@ -43,8 +43,8 @@ Helium 10 • Brand Analytics • Search Query Performance • Google Sheets •
 ---
 
 ## 📺 Connect With Me  
-- 🔗 **Upwork:** [https://www.upwork.com/freelancers/~01767179bb4e25ffa4]  
-- 🎥 **YouTube:** [[Haidar Brand Manager](https://www.youtube.com/@haidarbrandmanager](https://www.youtube.com/channel/UClIHJyJ7Jgh811dzgSSQ11w))  
+- 🔗 **Upwork:** https://www.upwork.com/freelancers/~01767179bb4e25ffa4
+- 🎥 **YouTube:** Haidar Brand Manager](https://www.youtube.com/@haidarbrandmanager](https://www.youtube.com/channel/UClIHJyJ7Jgh811dzgSSQ11w
 
 ---
 
